@@ -3,7 +3,7 @@
 <p align="center"> 
  <img src="https://files.catbox.moe/yi0uda.png"> 
   
-<p align="center"> BIRTHDAYCAKE CAKEBALLOON BALLOONCAKE COOKIEBALLOON BALLOONCOOKIE STRAWBERRYCOOKIE BERRYCOOKIE FRUITCAKE (and a million more.) <img src="https://files.catbox.moe/1cybqb.gif"> 
+<p align="center"> BIRTHDAYCAKE CAKEBALLOON BALLOONCAKE COOKIEBALLOON BALLOONCOOKIE STRAWBERRYCOOKIE BERRYCOOKIE (and a million more.) <img src="https://files.catbox.moe/1cybqb.gif"> 
   
  
    
