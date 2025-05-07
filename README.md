@@ -1,4 +1,6 @@
-<p align="center">                 
+<h6 align="center"> ( not my art y'all.. ) </h6>
+
+<p align="center"> 
  <img src="https://files.catbox.moe/yi0uda.png"> 
   
   <p align="center"> BIRTHDAYCAKE CAKEBALLOON BALLOONCAKE COOKIEBALLOON BALLOONCOOKIE STRAWBERRYCOOKIE BERRYCOOKIE FRUITCAKE (and a million more.)
