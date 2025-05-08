@@ -7,5 +7,5 @@
   
  
    
- <p align="center"> <img src="https://files.catbox.moe/lubjwr.png">
-<h6 align="center">  " Is it so wrong to check up on my fav cousin? " (NOT A SHIP.) </h6>
+ <p align="center"> <img src="https://files.catbox.moe/92pze2.gif">
+<h6 align="center">  " Might be a little bitter, haha... " </h6>
