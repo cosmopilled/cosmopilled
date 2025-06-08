@@ -1,11 +1,5 @@
-<h6 align="center"> ( not my art y'all.. ) </h6>
-
-<p align="center"> 
- <img src="https://files.catbox.moe/yi0uda.png"> 
-  
-<p align="center"> <img src="https://files.catbox.moe/1cybqb.gif"> NUM 1 LEGO FAN !! <img src="https://files.catbox.moe/1cybqb.gif"> 
-  
- 
    
- <p align="center"> <img src="https://files.catbox.moe/92pze2.gif">
-<h6 align="center">  " Might be a little bitter, haha... " </h6>
+<p align="center"> 
+ <img src="https://files.catbox.moe/4wt10k.png"> 
+  
+ <h6 align="center"> ' Forever, if we could. ' </h6>
